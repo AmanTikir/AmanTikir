@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AmanTikir
 - 👀 I’m interested in Ciência de Dados
-- 🌱 I’m currently learning e@d Uninter
+- 🌱 I’m currently learning e@d uNiVeSP
 - 💞️ I’m looking to collaborate on game KTQZ
 - 📫 How to reach me BB
 
